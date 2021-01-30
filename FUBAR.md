@@ -12,8 +12,6 @@ http://gph.is/1HtFA5G
 
 https://giphy.com/gifs/yfyFTllQ28z5u
 
-<<<<<<< HEAD
-=======
 https://wifflegif.com/gifs/506183-chubby-cat-in-a-small-box-gif
 
 (✯◡✯)	(◕‿◕)	(*≧ω≦*)	
@@ -21,4 +19,4 @@ http://gph.is/1HtFA5G
 
 No pressure is pressure!!!!!!!
 
->>>>>>> c4218d365ee76ba17755b904843118d8218de06b
+alice yike yike yikes
